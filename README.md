@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Fr0styFr0g
-- 👀 I’m interested in making videos, photography, art
+- 👀 I’m interested in videomaking, photography, art
 - 🌱 I’m currently learning motion design
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by email mr.fuuker@mail.ru or by telegram https://t.me/Fr0styFr0g

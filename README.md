@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fr0styFr0g
 - 👀 I’m interested in videomaking, photography, art
 - 🌱 I’m currently learning motion design
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on filmamking and videomaking
 - 📫 How to reach me by email mr.fuuker@mail.ru or by telegram https://t.me/Fr0styFr0g
 
 <!---
